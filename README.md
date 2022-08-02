@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GenAjay
+- 👋 Hi, I’m Ajay
 - 👀 I’m interested in Plant breeding
 - 🌱 I’m currently learning Prediction breeding
 - 💞️ I’m looking to collaborate on different research realted to plant breeding related researches
