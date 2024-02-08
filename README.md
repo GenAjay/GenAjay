@@ -11,6 +11,8 @@
 
 - ⚡ Fun fact **I do like coffee**
 - M.Sc. in Plant breeding from George August University, Germany
+- I love to travel, watch soccer and movies, and listen to music.
+- I love dogs too.
 
 
 <h3 align="left">Connect with me:</h3>
