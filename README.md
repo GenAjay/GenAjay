@@ -10,7 +10,7 @@
 - 📫 How to reach me **ajaydhungana0@gmail.com**
 
 - ⚡ ☕  Fun fact **I do like coffee**
-- 🎓 M.Sc. in Plant breeding from George August University, Germany
+- 🎓 M.Sc. in Plant breeding from George August University, Germany (Currently Ph.D. student)
 - 🚀, ⚽, ♮ I love to travel, watch soccer and movies, and listen to music.
 -  🐕 I love dogs too.
 
