@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Plant breeding projects**
 
-- 🌱 I’m currently learning **R programming**
+- 🌱 I’m currently learning **R programming, Python, Machine learning and Statistics**
 
 - 👯 I’m looking to collaborate on **plant breeding related research**
 
